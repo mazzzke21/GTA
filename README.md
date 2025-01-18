@@ -8,3 +8,5 @@
 ВОТ ЕЩЕ СЛИВ!!!!!!!!!!!!!!!!
 ![image](https://github.com/user-attachments/assets/865c2869-97fa-46c2-9cd2-7a96f6f916dc)
 ДОКАЗАТЕЛЬСТВА ЧТО ТОСА НИЧЕГО САМ НЕ ДЕЛАЕТ СЛИВ
+СЛИВ В ТЕРПИЛА РП НОВЫЕ ГОРИЗОНТЫ БУДЕТ ТЕРРОБАЙТ
+![image](https://github.com/user-attachments/assets/0bf8700e-ce05-43c6-a450-cb29dab61de0)
