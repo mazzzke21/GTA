@@ -10,3 +10,5 @@
 ДОКАЗАТЕЛЬСТВА ЧТО ТОСА НИЧЕГО САМ НЕ ДЕЛАЕТ СЛИВ
 СЛИВ В ТЕРПИЛА РП НОВЫЕ ГОРИЗОНТЫ БУДЕТ ТЕРРОБАЙТ
 ![image](https://github.com/user-attachments/assets/0bf8700e-ce05-43c6-a450-cb29dab61de0)
+![image](https://github.com/user-attachments/assets/1a44c040-9a6b-4645-9ae2-66870860ecef)
+КАПЕЦ ОН УШЩЕРБ НИЧЕ НЕ МОЖЕТ СДЕЛАТЬ САМ
